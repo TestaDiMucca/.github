@@ -6,6 +6,8 @@
 
 💻 I am a software professional (for now) but that doesn't mean everything here makes sense
 
+🤢 In fact they often don't - some are utilities I spin up quickly to accomplish misc. tasks
+
 🔍 I am not sure why anyone would be looking at this. Andare via!
 
 🧠 Am idiot
