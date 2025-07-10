@@ -1,4 +1,4 @@
-# Io sono Testa di Mucca - 我係「牛頭」
+# Io sono "Testa di Mucca" - 我係「牛頭」
 
 我細嗰陣父母係噉叫我。 No judge. Allora, questa è cosa?
 
@@ -7,5 +7,7 @@
 💻 I am a software professional (for now) but that doesn't mean everything here makes sense
 
 🔍 I am not sure why anyone would be looking at this. Andare via!
+
+🧠 Am idiot
 
 🤌 Applause be to Umu
