@@ -13,3 +13,5 @@
 🧠 Am idiot
 
 🤌 Applause be to Umu
+
+🐴 有冇見過馬面？
